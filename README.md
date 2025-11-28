@@ -19,7 +19,11 @@
 ![](https://github.com/stolbitsa/stolbitsa/assets/149964365/11695a94-1863-4f8b-85ec-0aea722db761)
 
 Попробуйте угадать, какой из вариантов звучит!
-<br><br>
+
+
+Предыдущий урок:
+![](https://github.com/user-attachments/assets/23013d66-1348-4dfb-9fcd-74f7ce796eb2 =200x200)
+stolbitsa.com/fistachka/tonic-harmonic-2<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
@@ -45,5 +49,9 @@ We will have one of the three options:
 ![](https://github.com/stolbitsa/stolbitsa/assets/149964365/11695a94-1863-4f8b-85ec-0aea722db761)
 
 Try to guess which option is playing!
-<br><br>
+
+
+Previous lesson:
+![](https://github.com/user-attachments/assets/23013d66-1348-4dfb-9fcd-74f7ce796eb2 =200x200)
+stolbitsa.com/fistachka/tonic-harmonic-2<br><br>
 
